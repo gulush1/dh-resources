@@ -1,1 +1,1 @@
-# Distant Horizons Resources
+# Resources
